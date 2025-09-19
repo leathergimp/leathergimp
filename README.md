@@ -6,4 +6,6 @@
 
 <sub>iwc if youre 15> & dnf if you support harassment or censorship in *any* way shape or form (**no** exceptions). i hide & block freely</sub>
 
+![](https://files.catbox.moe/qtxcp4.gif)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
