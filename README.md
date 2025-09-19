@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/x8i9fi.gif)
 
-<sub>rob & hux, he rot. 17, male, masc terms **only**. when it comes to marvel i only care for the mcu & *specifically* winterbaron or bucky in general. i really dont like stucky (sorry) or other bucky ships unless theyre hydratrashparty related (sorry), so probably dont talk to me about those</sub>
+<sub>rob & hux, he rot. 17, male, masc terms **only**. when it comes to marvel i only care for the mcu & *specifically* winterbaron or bucky in general. i really dont like stucky (sorry) or other bucky ships unless theyre hydratrashparty related (sorry), so probably dont talk to me about those. my interpretation of bucky is also very different from whats usually accepted or "agreed upon" so.</sub>
 
 <sub>iwc if youre 15> & dnf if you support harassment or censorship in *any* way shape or form (**no** exceptions)</sub>
 
