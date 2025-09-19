@@ -1,4 +1,4 @@
-<sub><sub>brainwash my head to clear away all the lies that ive been forced & fed </sub></sub>
+<sub>brainwash my head to clear away all the lies that ive been forced & fed </sub>
 
 ![](https://files.catbox.moe/x8i9fi.gif)
 
