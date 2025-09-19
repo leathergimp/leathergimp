@@ -1,7 +1,7 @@
-<sub>brainwash my head to clear away all the lies that ive been forced & fed </sub>
+<sub><sub>　　　　main: @dogfashiondisco , check for more info</sub></sub>
 
 ![](https://files.catbox.moe/x8i9fi.gif)
 
-<sub> main: @dogfashiondisco , check for more info. this is my mcu alt
+<sub>rob & hux, he rot. 17, male, masc terms **only**. when it comes to marvel i only care for the mcu & *specifically* winterbaron. the rest of the mcu i dont rlly gaf abt (being blunt, not rude)</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
